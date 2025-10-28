@@ -1,1 +1,1 @@
-# Maratona-de-Programa-o
+# Maratona-de-Programação
